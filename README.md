@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mussyman-png
+- 👀 I’m interested in beanut putter
+- 🌱 I’m currently learning how to make games
+- 💞️ I’m looking to collaborate on idk... beanut putter
+- 📫 How to reach me 567-376-7895. and yes this is my real number
+- 😄 Pronouns: he/him? idk why that matters
+- ⚡ Fun fact: im white, and i like beanut putter
